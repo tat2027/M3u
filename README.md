@@ -1,4 +1,4 @@
-*Daily Update OTT CODE*
+Daily Update OTT CODE
 
 8500+ Channels, 100k+ Movies, 8500+ World Series
 All in One Netflix, Amazon Prime Video, Apple TV, HBO, Hulu, Zee5, Jio ETC* *in 4K Ultra Movies Series & Worldwide TV Channels
